@@ -4,7 +4,7 @@
 - 👯 I’m looking to collaborate on any project.
 - 🤔 I’m looking for help with everything. Feel free to contact.
 - 💬 Ask me about anything but personal.
-- 📫 How to reach me: Contac via gk9091@naver.com
+- 📫 How to reach me: Contact via gk9091@naver.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
